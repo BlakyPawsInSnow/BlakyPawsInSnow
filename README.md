@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BlakyPawsInSnow,Maybe u see me in pony town so hi! I'm a minor!(14 years old) so I'm not comfortable with adults or too young kids, I play in the md/hh and hb place! 
-I do lot of cos or creative oc for fun! I'm not very talkative sometime and I fav to talk with my friends, but if u want talk with u can!(if I don't have socialanxiety and not too shy :) ) Sometime I'm afk too
+I do lot of cos or creative oc for fun! I'm not very talkative sometime and I fav to talk with my friends, but if u want talk with me u can!(if I don't have socialanxiety and not too shy :) ) Sometime I'm afk too
 so whisper me if I don't int.
 (Warning I'm depressive so I don't talk very much sometime cause I have problems irl.. I fav to talk with people I love like my friends
 but we can try to talk if u want, but pls I don't want to talk about my depression which is destroying my life.) oh and I'm not a lgbt supporter srry.. I'm not homophobic! but
