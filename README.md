@@ -1,4 +1,4 @@
-*+"A snow forest in the way.."+*
+*+"A snow forest in the way..I just want to be in this place in this forest..the snow..just let me go.."+* (my words)
 
 - 👋 Hi, I’m @BlakyPawsInSnow,Maybe u see me in pony town so hi! I'm a minor!(14 years old) so I'm not comfortable with adults or too young kids, I play in the md/hh and hb place! 
 I do lot of cos or creative oc for fun! I'm not very talkative sometime and I fav to talk with my friends, but if u want talk with me u can!(if I don't have socialanxiety and not too shy :) ) Sometime I'm afk too
