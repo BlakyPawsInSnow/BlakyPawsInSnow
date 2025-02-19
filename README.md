@@ -11,7 +11,7 @@ I try to have a perfect english! it's my 2025 goal too ye cause it's not my main
 - Ok now lets talk about pony town!:I talk with everyone sometime or not cause I'm afk or busy and I have socialAnxiety too I'm very shy (irl it's worst) or I am with my silly friends!! (I don't accept all friend request!
 like if u send me a random friends request I don't gonna accept it, I fav to talk with u first and have a good time with u maybe I'm going to accept to be ur friend)
   and! DNC! my ponies I try to be unique and original to have my unique ponies but I see too much people copy me 
-pls ask me before copy something, it's very annoying see others people try to copy u, and when I make a pony myself it's take very a lot of time like 2-4 hours or more! so pls stop this (especially
+pls ask me before copy something, it's very annoying to see others people try to copy u, and when I make a pony myself it's take very a lot of time like 2-4 hours or more! so pls stop this (especially
 my uzi cos lot of people copy my uzi hair pls STOP THIS! If I see u copy I'm going to whisper u to stop pls)
 
 - She/her pls use she/her I'm a girl so ye use this pronouns!
