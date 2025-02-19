@@ -16,4 +16,4 @@ my uzi cos lot of people copy my uzi hair pls STOP THIS! If I see u copy I'm goi
 
 - She/her pls use she/her I'm a girl so ye use this pronouns!
 
-(I'm going to add other things maye later) Good bye and Be yourslef*+
+(I'm going to add other things maybe later) Good bye and Be yourslef*+
