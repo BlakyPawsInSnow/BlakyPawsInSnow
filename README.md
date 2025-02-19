@@ -5,7 +5,7 @@ so whisper me if I don't int.
 but we can try to talk if u want, but pls I don't want to talk about my depression which is destroying my life.) oh and I'm not a lgbt supporter srry.. I'm not homophobic! but
 idk I just don't support that honnestly I don't understand lgbt orientation and gender.. (In my opinion for sure) (male and female for me it's 2 genders only)
 
--  ok if u want know other thing about me lets start: My hobby is the draw I love draw I'm an artist and a quadrobric too!(ye I am a therian too but I don't want very talk about it..be therian is isn't fun
+-  ok if u want know other thing about me lets start: My hobby is the draw I love draw I'm an artist and a quadrobric too!(ye I am a therian too but I don't want very talk about it..be therian is isn't fun)
 I try to have a perfect english! it's my 2025 goal too ye cause it's not my main language my main language is french ye I am french :) so srry If I have a bad english I try my best.
   
 - Ok now lets talk about pony town!:I talk with everyone sometime or not cause I'm afk or busy and I have socialAnxiety too I'm very shy (irl it's worst) or I am with my silly friends!! (I don't accept all friend request!
