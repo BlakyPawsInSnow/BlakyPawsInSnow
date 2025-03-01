@@ -4,7 +4,7 @@
 I do lot of cos, or creative oc for fun! I'm not very talkative sometime and I fav to talk with my friends, but if u want talk with me u can!(if I don't have socialanxiety and not too shy :) 
 (Warning I'm depressive so I don't talk very much sometime cause I have problems irl.. I fav to talk with people I love like my friends
 but we can try to talk if u want, but pls I don't want to talk about my depression which is destroying my life.I don't show off, I don't say it for attention, I'm just warning you,I hope u understand and thx). oh and I'm not a lgbt supporter srry.. I'm not homophobic! but
-idk I just don't support that honnestly I don't understand lgbt orientation and gender.. (In my opinion for sure) (male and female for me it's 2 genders only)
+idk I just don't support that honnestly I don't understand lgbt orientation and gender.. (In my opinion for sure) (male and female for me it's 2 genders only) (and finally I don't trust people I'm sorry it's really a big problem on me,I've had a lot of friendship issues and such so it's made me very distrustful + I no longer trust people who tell me they'll always be there for me, they're just fucking lies :)
 *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
 - (What I love do) (addiction? Nope! it's private :3) ok if u want know other thing about me lets start: My hobby is the draw I love draw I'm an artist and a quadrobric too!(ye I am a therian too but I don't want very talk about it..be therian is isn't fun)
 I try to have a perfect english! it's my 2025 goal too ye cause it's not my main language my main language is french ye I am french :) so srry If I have a bad english I trying my best.
