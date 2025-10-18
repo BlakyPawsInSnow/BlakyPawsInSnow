@@ -6,7 +6,7 @@
 -
 -  **1 First!** I am always in these differents place in pt 1 place: md (murder drone) place next to the bakery,2 place in the bloodmoney spot near the spawn and the hh hb (helluva boss hazbin hotel) place if I am not here its maybe cuz I am offline or at my island or with some friends.
 -
--    **2 second!** what i do in pt? im someone who are in pt more for be in fandom place and try found some friends cuz why not? I am almost all the time with my close friends espicially my best friend, and i almost all my skins are actually cos lol like this i can find more player in the fandom i am in :D so ye i luv do cos in this game! and  sometime im just here for chill.
+-    **2 second!** what i do in pt? im someone who are in pt more for be in fandom place and try found some friends cuz why not? I am almost all the time with my close friends espicially my best friend, and i almost all my skins are actually cos lol like this i can found more player in the fandom i am in :D so ye i luv do cos in this game! and  sometime im just here for chill.
 -
 -    **3!** If u want be friends with me np! but first pls do not send random friends request without I know u! i need to have time and talk together for maybe accept to have u in my friendslist! sometime i remove some people in friendslist cuz  i just want have only close friends maybe u will become my close friends? hehe x3 and ofc u need to know Im a minor i will not say my real age but i am btw 13-18 so ye u know it now :).
 -
