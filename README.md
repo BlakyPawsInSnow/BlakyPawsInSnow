@@ -4,7 +4,7 @@
 ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆
 -ʜᴀɪ! u come from the pt (pony town) game? ofc yes! nice to meet u stranger! I will not say my real name but just call me Blaky/Uzi ur choose! so here some informations about me and pt espicially okay so!
 -
--  **1 First ! place** ᴡʜᴇʀᴇ ɪ ᴀᴍ ᴏɴ ᴘᴛ: md (murder drone) place next to the bakery. **Second! place**in the bloodmoney spot near the spawn and the hh hb (helluva boss hazbin hotel) place if I am not here its maybe cuz I am offline or at my island or with some friends.
+-  **1 First ! place** ᴡʜᴇʀᴇ ɪ ᴀᴍ ᴏɴ ᴘᴛ: md (murder drone) place next to the bakery. **Second! place** in the bloodmoney spot near the spawn and the hh hb (helluva boss hazbin hotel) place if I am not here its maybe cuz I am offline or at my island or with some friends.
 -
 -    **Second !** ᴡʜᴀᴛ ɪ ᴅᴏ ɪɴ ᴘᴛ: Im in pt more for be in fandom place and try found some friends cuz why not? I am almost all the time with my close friends espicially my best friend (Megi),  I love making skins and cos almost all my skins are actually cos x) like this i can found more player in the fandom i am in :D so ye i luv do cos in this game! and  sometime im just here for chill.
 -
